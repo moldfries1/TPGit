@@ -1,1 +1,71 @@
-L'École du micro d'argentL'École du micro d'argentL'Écoledu micro d'argentL'École du micro d'argentL'École du micro d'argentL'École du micro d'argentL'École du micro d'argentShurik'nAssis en tailleur, voilà des heures que je méditeSur ma montagne et je n'arrive pas à faire le videJe focalise sur le diaphragme, j'augmente mon énergieRéveille la bête qui dans mon âme est tapieJe viens de terminer ma préparation mentaleIls vont goûter à l'incomparable style du ServalLe souffle des quatre vents décuple ma puissanceDe longs mois de travail ont exacerbé mes sensJ'ai créé un déséquilibre interne volontairementAfin que le côté Yang soit le dominantLes pieds solidement ancrés dans la TerreJe tire les dernières forces de la nature mère nourricièreJe mène les troupes au combat pour défaireLes guerriers en contre-plaqué de l'école du micro en boisNotre bannière flotte au sommet du TsunamiAnnonçant fièrement la charge du micro d'argentEn plein cœur de la batailleJe sème la terreur quand je frappe d'estoc et de tailleJe sens l'esprit du félin m'envahirÀ ce stadeseul le sang me procure du plaisirMes griffes gravent les couleurs de l'EmpirePlus grand que celui d'Alexandre dont je suis le défenseurL'École du micro d'argentL'École du micro d'argentJe représenteL'École du micro d'argentL'École du micro d'argentJe représenteL'École du micro d'argentL'École du micro d'argentJe représenteL'École du micro d'argentL'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'Écoledu micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+L'École du micro d'argent
+Shurik'n
+Assis en tailleur, voilà des heures que je médite
+Sur ma montagne et je n'arrive pas à faire le vide
+Je focalise sur le diaphragme, j'augmente mon énergie
+Réveille la bête qui dans mon âme est tapie
+Je viens de terminer ma préparation mentale
+Ils vont goûter à l'incomparable style du Serval
+Le souffle des quatre vents décuple ma puissance
+De longs mois de travail ont exacerbé mes sens
+J'ai créé un déséquilibre interne volontairement
+Afin que le côté Yang soit le dominant
+Les pieds solidement ancrés dans la Terre
+Je tire les dernières forces de la nature mère nourricière
+Je mène les troupes au combat pour défaire
+Les guerriers en contre-plaqué de l'école du micro en bois
+Notre bannière flotte au sommet du Tsunami
+Annonçant fièrement la charge du micro d'argent
+En plein cœur de la bataille
+Je sème la terreur quand je frappe d'estoc et de taille
+Je sens l'esprit du félin m'envahir
+À ce stadeseul le sang me procure du plaisir
+Mes griffes gravent les couleurs de l'Empire
+Plus grand que celui d'Alexandre dont je suis le défenseur
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Mon sabre scintille, je médite accroupi sous les branches d'un saule
+Pleure, je défends l'honneur de mon école, fils
+Le troisième œil scrute le terrain, la tactique
+À pratiquer, pour balayer l'ennemi, statique
+Physiquement, les déplacements furtifs
+De l'essence de mon esprit élabore les bases de ma stratégie
+Donc je me dresse dans des cliquetis, bardé d'armes
+J'ai une armée entière sous le charmePrête à mourir, à la gloire de mon étendard
+J'ai rassemblé la clique des valeureux guerriers barbares
+Dare-dare j'ai envoyé paître les lettresPourchassé les traîtres, selon l'enseignement de mes maîtres
+Sans relâche, je crache des cendres
+Et poursuivrai les massacres jusqu'àce que le nom d'AKH soit légende
+Car le soldat, guerrier alpha est adroit
+Et lance l'assaut là, sur l'école du micro en bois
+La bataille a débuté, tiens
+Ce coup vient d'un expert à la guerre
+Vaillant praticien des arts martiens
+Délégué pour mettre un terme à ces horreurs
+Tel est mon labeur, tu sais de qui je défends l'honneur
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
